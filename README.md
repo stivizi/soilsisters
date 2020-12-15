@@ -1,8 +1,7 @@
 # Soil Sisters
-## Sustainable from the ground up
-Soil Sisters is a global community that empowers young women through soil building.
+Soil Sisters is a global community that empowers young women through sustainable soil building.
 ## Why?
-Because if everybody were a Soil Sister, the planet and all of the life She supports would be fine.
+Because if everybody were a Soil Sister, the planet and all of the life She creates would be fine.
 ## Who?
 Everyday people who fear for the human species and understand that the best answer to climate change lies in the soil.
 ## Where?
