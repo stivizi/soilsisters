@@ -2,5 +2,4 @@
 title = "Where are the brothers?"
 tags = "[brothers inclusion]
 +++
-Being a sister isn't about anatomy. It's an homage to the feminine capacity to grow life in a connected amd nurturing way. Anyone can be a Sister. We hope they do. It's one of the few things that could save the species. Available to almost anyone. Today.
-
+Being a Sister isn't about gender or labels. The word Sister isn't meant to discourate anyone. It pays tribute to the associated connection around the feminine capacity to grow and nurture life. Everyone carries that capacity and anyone can become a Sister. We hope they do because soil building is one of the few things that anyone can do to save the species. And Soil Sisters is a great place to collaborate with people who share this truth.
